@@ -1,2 +1,3 @@
 # hello-world
 Giving this a try...
+Hey. I'm Alex from Sweden, I'm totally new to this and I'm crazy confused. Trying to find my way around this world of its own. 
